@@ -1,3 +1,5 @@
+WELCOME TO MY PROFILE💙💙
+
 - 👋 Hi, I’m @EVVS043A
 -  I’m interested in Alura
 -  I'm developing in the How to reach me JavaScript language 
